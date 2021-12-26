@@ -21,3 +21,15 @@ https://codepen.io/Janoczka
 * [https://codepen.io/Janoczka/pen/OJWMGXw]
 * [https://codepen.io/Janoczka/pen/LYbKaza]
 * [https://codepen.io/Janoczka/pen/VwmrrYr]
+#### Work experience
+**2017-2021**
+*NESTLE*
+Production operator
+#### Education
+**2007 - 2012**
+*Kharkiv National Agrarian University named after V.V. Dokuchayev*
+Faculty of Land Surveying
+#### Languages
+* Ukrainian - native
+* Polish - fluent
+* English - intermediate
